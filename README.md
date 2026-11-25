@@ -8,10 +8,10 @@ Entry for the [One-Line Office Jokes](https://make.fun/bounty/u-markk-st-one-lin
 
 ## The joke
 
-> The printer only jams when the deadline is in five minutes.
+> HR sent me a birthday card addressed to my predecessor. He left in 2019.
 
-One line, 59 characters. It turns on a real office detail — the printer —
-and lands the laugh in the last few words.
+One line, 72 characters. It turns on a real office detail — an HR
+birthday card — and lands the laugh in the last few words.
 
 ## How it works
 
